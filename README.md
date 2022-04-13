@@ -1,1 +1,0 @@
-# marcinsikora.github.io
